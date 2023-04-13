@@ -1,2 +1,0 @@
-# ucuncu-html
-iletişim+hakkımızda
